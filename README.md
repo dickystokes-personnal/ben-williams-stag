@@ -27,16 +27,25 @@ Check out: Sunday 24th May 10am
 # Itinerary
 
 ## Friday 22nd May
+- Arrive from 5pm at YHA Coniston Holy How
+- I will bring a quick / cheap one pot thing like pasta bake or chilli
+- We may wander down to the pub depending on peoples arrival times / vibe
 
 ## Saturday 23rd May
+- Breakfast in the hostel. Hostel breakfast is about a tenner but I will bring some bits
+- Assemble packed lunches
+- **Depart at 10am for walk**
+  - [This is the walk I am planning](https://www.yha.org.uk/experience/old-man-coniston-and-wetherlam-self-guided-walking-route)
+  - 6pm [The Sun Inn](https://maps.app.goo.gl/mpwZemR8nCPdEEjb6) for dinner
 
 ## Sunday 24th May
-- Breakfast
+- Breakfast - eat leftovers and/or hostel breakfast
 - Check-out 10am
 
 # Things to remember
-Anything you need for an upto 9 hour hike, such as:
-- Day rucksack
-- Water Bottle
-- Personal snacks
-- Sun cream
+- I will bring some beers with kitty money but please bring anything else you would like to drink
+- Anything you need for an upto 9 hour hike, such as:
+  -   Day rucksack
+  -   Water bottle
+  -   Personal snacks
+  -   Sun cream
